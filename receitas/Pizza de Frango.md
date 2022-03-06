@@ -52,6 +52,3 @@
 3. Quando estiver cozido desfie e coloque na pizza.
 4. Polvilhe orégano.
 5. Asse no forno por 20 minuto a 280ºC.
-
-
-
